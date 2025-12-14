@@ -1,5 +1,7 @@
 ## Yo. W3lcome My to my Profile
-
+Got issues? Bitch about 'em to my dick. 
+tg: @angelw1ngsov
+ds: angelw1ngsov
 <!--
 **Angelwingsov/Angelwingsov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
