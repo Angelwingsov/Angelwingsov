@@ -2,6 +2,9 @@
 Got issues? Bitch about 'em to my dick. 
 tg: @angelw1ngsov
 ds: angelw1ngsov
+
+ur slut is smearing my cum instead of toothpaste >_<
+If my dick was in Minecraft, it'd be diamond X_x
 <!--
 **Angelwingsov/Angelwingsov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
